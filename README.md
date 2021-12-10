@@ -1,6 +1,6 @@
 # Nhat ky
 
-## What is  ky?
+## What is Nhat ky?
 
 ## 12 tuổi thi học sinh giỏi huyện lớp 5
 - Nhờ môn văn mà được giải khuyến khích
